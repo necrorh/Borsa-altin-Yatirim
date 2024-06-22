@@ -1,5 +1,5 @@
 Merhaba!
 
-Yatırım araçlarının(Altın ve Dünyadaki belli başlı büyük Borsalar, Bist 100 borsası dahil olmak üzere) Lehman Kardeşler yani 2008 krizine ve Covid-19 salgınına tepkilerine baktım.
-Para politikalarının enflasyonu nasıl şişirdiğini, senyoraj geliri almanın hükümetler için ne kadar önemli olduğunu irdeledim!
+Altın ve BIST 100 dahil olmak üzere dünyadaki borsaların Lehman Kardeşler - 2008 krizine ve Covid-19 salgınına tepkilerine baktım.
 
+Genişleyici para politikalarının enflasyonu şişirdiğini ve senyoraj geliri yaratarak borsaları ileri götürmede destekleyici bir rol oynadığını gösterdim.
